@@ -1,4 +1,4 @@
-#  
+#  Experience bedwars like never before with bedwars Scripts rare, the #1 Script. Includes auto-collect and invisibility for unbeatable performance.
 
 
 
